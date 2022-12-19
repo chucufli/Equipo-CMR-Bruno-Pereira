@@ -23,3 +23,6 @@ venganza, con tal de defender su querido juego (y de paso rescatar a su familia)
 Anexo: Bruno Pereira siempre pasa escuchando la parodia de Torero, Minero:
 https://youtu.be/VZzSBv6tXMw
 (Realmente es un fan, que alguien lo ayude).
+
+- Equipo CMR
+- Integrantes: Arianne Peña, Juan Pablo Sánchez, Simón Bravo
